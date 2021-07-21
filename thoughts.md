@@ -4,3 +4,5 @@
 
 3. Aim to become better at planning and calendering
 4. Lean on my classmates and ask questions
+
+Thanks mom for always answering when I call

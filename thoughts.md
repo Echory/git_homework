@@ -8,5 +8,5 @@
 Thanks mom for always answering when I call
 
 
-1. My thought is that it is good to talk things out
-2. Github will take some getting used to
+
+1. Github will take some getting used to but is handy 

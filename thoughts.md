@@ -6,3 +6,7 @@
 4. Lean on my classmates and ask questions
 
 Thanks mom for always answering when I call
+
+
+1. My thought is that it is good to talk things out
+2. Github will take some getting used to
